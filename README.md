@@ -1,2 +1,2 @@
 # tulsainline.github.io
-https://github.com/robinbecher/mychatroom2.git
+How tf do you do this crap? 
